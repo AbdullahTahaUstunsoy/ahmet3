@@ -1,0 +1,1 @@
+norm hariç tamam.
